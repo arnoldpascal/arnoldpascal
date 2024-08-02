@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **arnoldrpascal@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XrbWxh0gXlgdmhmA0-rV9Bvr958RSQhg/view?usp=drive_link](https://drive.google.com/file/d/1XrbWxh0gXlgdmhmA0-rV9Bvr958RSQhg/view?usp=drive_link)
+- 📄 Know about my experiences https://drive.google.com/file/d/1JHtUqBkpFPfrxk2mkIbf7v_foRunj55e/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
